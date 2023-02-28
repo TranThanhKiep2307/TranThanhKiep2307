@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi I'm Tran Thanh Kiep ✨
+### I'm studying at Can Tho University
 <!--
 **TranThanhKiep2307/TranThanhKiep2307** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
